@@ -4,4 +4,4 @@ This also contains the google documents on how the project was done step by step
 link.
 Reach me by my email 
 
-derrickkuria44@gamil.com
+derrickkuria44@gmail.com
